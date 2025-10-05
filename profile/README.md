@@ -44,4 +44,4 @@ Temos especial experiência e interesse em **projetos sociais**, facilitando a i
 
 ---
 
-💡 **Tecnologia sob medida, com atenção especial a cada detalhe**
+💡 **Tecnologia que entende seu contexto**
